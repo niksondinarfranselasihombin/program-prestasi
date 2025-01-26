@@ -1,2 +1,1 @@
-# Pemilihan siswa
 
